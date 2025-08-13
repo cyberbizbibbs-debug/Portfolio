@@ -16,8 +16,6 @@ https://2a9bca09-80dc-4ddb-8782-a60b7bf6a545.filesusr.com/ugd/0cf589_30cef24f49d
 
 2)Update Resource Information and Identify Critical Tasks
 
-<img width="680" height="59" alt="image" src="https://github.com/user-attachments/assets/4268fbf1-758b-4611-9da4-84bf972e7b94" />
-
 
 
 
